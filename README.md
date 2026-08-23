@@ -1,1 +1,1 @@
-# repo-aula2
+REPETIÇÃO 1 AO 20-LISTA 2
